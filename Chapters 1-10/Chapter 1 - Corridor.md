@@ -6,5 +6,3 @@ He walked forward several steps, before finding a door on his left, just where i
 John stepped through the threshold of the door, now open before him. He didn’t remember opening it, but it didn’t matter. John, now clothed, was standing in the midst of a bustling hospital, only to be ordered out of the way by a nurse pushing a stretcher. A man covered in blood lay on top of it, howling at the top of his lungs. John didn’t know where he was, or what role he was supposed to play. But alas, it did not matter.
 
 ~ Z
-
-YOOOOOOOOo
