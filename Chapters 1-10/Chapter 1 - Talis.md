@@ -1,5 +1,0 @@
-# Talis
-
-Sample chapter.
-
-~ Starcatcher
